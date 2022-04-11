@@ -1,0 +1,1 @@
+MOTD courtesy of http://shaneriley.com/dickbuttjs/ and https://www.fanfiction.net/s/6829556/2/My-Immortal
